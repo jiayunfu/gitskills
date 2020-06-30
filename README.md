@@ -1,2 +1,2 @@
 # gitskills
-asdfghj立刻脚后跟发
+asdfghj立刻脚
